@@ -1,8 +1,8 @@
 👽TRAP😎BE-CAREFUL👽
 
-👽WE ARE LAUGHING
+👽WE ARE LAUGHING..
 
-👽BECAUSE .....
+👽BECAUSE 👉🤳
 
 ![IMG](https://i.imgur.com/FJNnQFp.gif)
 ![IMG](https://i.imgur.com/pjEO5JX.gif)
