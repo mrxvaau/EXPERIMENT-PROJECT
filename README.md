@@ -1,4 +1,4 @@
-👽TRAP-MEYBE
+👽TRAP
 👽BE-CAREFUL👽
 ![IMG](https://thumbs.gfycat.com/CleanSmugCod-max-1mb.gif)
 ![IMG](https://i.imgur.com/FJNnQFp.gif)
